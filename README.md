@@ -1,4 +1,3 @@
-Tharisha-Lekamge
 Hi, I'm Tharisha Lekamge 👋
 Welcome to my GitHub profile! I'm passionate about combining my marketing background with a focus on technology.
 
